@@ -6,4 +6,7 @@
   How much good inside a day? Depends how good you live 'em. 
   <br>
   How much love inside a friend? Depends how much you give 'em.
+  <br>
+  ― Shel Silverstein
+
   </samp></p>
