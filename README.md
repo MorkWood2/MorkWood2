@@ -1,5 +1,6 @@
 <p><samp>
-  There was a rose called Guy de Maupassant, a carmine pink that smelled like a Granny Smith and there was another from the seventeenth century that wept too much and wilted when you looked; and one that caused tuberculosis, doctors dug them up, they wore white masks and posted warnings in the windows. One wet day it started to hail and pellets the size of snowballs fell on the roses. It's hard for me to look at a Duchess of Windsor, it was worn by Franco and Mussolini, it stabbed Jews; yesterday I bought six roses from a Haitian on Lower Broadway; he wrapped them in blue tissue paper, it was starting to snow and both of us had on the wrong shoes, though it was wind, he said, not snow that ruined roses and all you had to do was hold them against your chest. He had a ring on his pinky the size of a grape and half his teeth were gone. So I loved him and spoke to him in false Creole for which he hugged me and enveloped me in his camel hair coat with most of the buttons missing, and we were brothers for life, we swore it in French.
-  <br><br>
-  ― Gerald Stern, "Roses"
+in a fleeting life<br>
+some leisure time<br>
+this autumn evening<br>
+—Buson
 </samp></p>
